@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aniket.
 - 👀 I’m interested in Deveeloping Websites, Designing.
-- 🌱 I’m currently learning MCAI in Chh.Shivaji University KOlhapur.
+- 🌱 I’m currently learning MCAI in Amravati University.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...Gmail:-kaleaniket042@gmail.com
 
